@@ -1,1 +1,2 @@
-# janice
+# Janice
+Trahie par son organisation, Mary Belle meurt dans le silence et la solitude. Contre toute attente, l’espionne renaît en tant que Janice Lintbell, la fille d’une famille d’aristocrates. Lorsque l’adolescente au caractère bien trempé entre à l’académie Hyllium, son monde est chamboulé ! L’agent secret solitaire se retrouve projetée dans un monde de convenances et d’interactions sociales. Mais ses talents d’espionne pourraient bien se révéler utiles lorsqu’une élève de l’école est retrouvée morte…
